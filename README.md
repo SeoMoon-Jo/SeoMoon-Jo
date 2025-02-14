@@ -2,7 +2,7 @@
   <img src="https://i.ibb.co/tpK9rNrL/Untitled86-20250214003513.webp" alt="hi">
 </p>
 <p align="center">
-Archie　ₒᵣ　Kay　,　16yo　,　DiDsystem
+Archie　ₒᵣ　Kay　,　16yo　,　DiDsystem　,　tkn
 </p>
 <p align="center">
 usually　offtab　or　afk　,　pls　w2i　or　i　wont　see　!
